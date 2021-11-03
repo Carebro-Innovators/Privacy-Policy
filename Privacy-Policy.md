@@ -1,5 +1,5 @@
-# Privacy-Policy
-Yes mentor Privacy Policy
+
+# Yes Mentor
 
 Privacy Policy  
 ----------------
